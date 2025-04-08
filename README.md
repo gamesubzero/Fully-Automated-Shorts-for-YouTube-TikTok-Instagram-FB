@@ -1,6 +1,6 @@
 Discover the ultimate hands-free solution to generate short-form content automatically across all major social media platforms!
 
-
+https://www.youtube.com/watch?v=5q6Ere9TZ3o
 
 Minimum  Requirement VRAM 4GB or Above with WINDOWS OS + RTX GPU Series
 
